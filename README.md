@@ -7,7 +7,7 @@
 - ⚠️ Fun fact: I can draw u prenant <33
 .I love skateboarding and electric guitar but brok💦
 .REALLY RELY DUMMB UGHHH
-.1 pr3T1y lUUv 5C33NS 5tY1ee3 so mucHXD
+.1 pr3T1y lUUv 5C3N3 5tY1ee3 so mucHXD
 <!---
 this stupid guy is a 🎸 dumbass 🎮repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
